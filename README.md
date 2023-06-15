@@ -1,1 +1,1 @@
-# GameShop1
+# SKLEP
